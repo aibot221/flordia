@@ -1,11 +1,11 @@
 ### Our trip to Flordia!
 
-1.) Arrive in FL
-2.) Animal Kingdom, Avatar
-3.) Hollywood Studios, Star Wars
-4.) Magic Kingdom
-5.) Harry Potter
-6.) Beach/Daytona?
+1. Arrive in FL
+2. Animal Kingdom, Avatar
+3. Hollywood Studios, Star Wars
+4. Magic Kingdom
+5. Harry Potter
+6. Beach/Daytona?
 
 
 
